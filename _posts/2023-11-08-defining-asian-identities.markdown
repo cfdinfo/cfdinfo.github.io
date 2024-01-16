@@ -1,0 +1,29 @@
+---
+layout: post
+title: "Defining Asian Identities"
+date: 2023-11-08 11:52:47 +0000
+categories: "News"
+excerpt_image: https://www.sup.org/img/covers/large/pid_22029.jpg
+image: https://www.sup.org/img/covers/large/pid_22029.jpg
+---
+
+### Distinct Ethnic Groups Across Asia
+Asia is an enormous continent comprised of immense diversity in ethnicities, cultures, and national identities. [South Asian](https://jnewshub.github.io/2023-11-08-the-ultimate-itinerary-driving-from-bengaluru-to-goa-through-karnataka-s-scenic-routes/), **Central Asian**, **East Asian**, and **Southeast Asian** peoples each have their own distinct ethnic backgrounds and histories that unite communities within broader geographic regions. While continents are defined geographically, ethnic identity is formed by shared genetics, languages, religions, traditions, and experiences over generations. 
+India, Pakistan, Bangladesh, Sri Lanka, Nepal and Bhutan are home to over 1.9 billion people collectively identifying as South Asian. This southern swath of Asia has witnessed the rise and fall of empires for millennia, cementing ethnic South Asian identities through centuries of cultural exchange and regional influences. Further North, **former Soviet republics** like Kazakhstan, Kyrgyzstan, Tajikistan, Turkmenistan and Uzbekistan comprise the diverse Central Asian region, home to Turkic, Persian and Mongol ethnicities with influences from neighbors China, Russia and the Middle East.  
+
+![](https://chinese.arts.ubc.ca/files/2021/05/AntiAsianRacism-feat_2000x850-1536x653.jpg)
+### Racialization of Asians in Western Contexts
+In countries like the United States, the concept of Asian identity became racially defined in the late 19th/early 20th century, primarily referring to East Asian and Southeast Asian peoples with ancestry from China, Japan, Korea, Vietnam and other parts of East/Southeast Asia. This narrow definition of Asian emerged from anti-Chinese sentiment on the West Coast and immigration restrictions that primarily targeted these East/Southeast Asian ethnic groups. Over time, this racialized understanding of Asian as exclusively denoting East and Southeast Asian peoples became dominant in American popular culture and discourse.
+However, assigning a continental identity like "Asian" to encompass the enormous diversity of ethnic groups across Asia can promote misunderstanding. While East Asians may share some physical traits and cultural traditions, they comprise just a small portion of Asian ethnicities. Those with ancestry from South Asia, Central Asia or the Middle East generally do not racially identify as Asian in Western contexts due to profound differences in genetics, religions, and histories.
+### Asian Diaspora Communities in the West  
+As diaspora communities from various parts of Asia grew in countries like the United States, Canada and across Europe in the late 20th century, many advocated for expanding definitions of Asian identity beyond the narrow East/Southeast Asian framing. South Asians especially argued for recognition of their distinct ethnicity versus being subsumed under the broad "Asian" label. However, the entrenched racial understanding of Asian in places like America persists today.
+Yet younger generations of the South Asian diaspora have also embraced a pan-Asian solidarity and identity. Organizations like South Asian Americans Leading Together (SAALT) advocate across ethnic lines, recognizing shared experiences of racism, immigration, and cultural adjustment faced by all Asians in the West. As diaspora communities interact and intermarry more, lines between ethnic identities may continue blurring. Still, respecting differences in histories and perspectives remains key to understanding the immensely diverse identities across the Asian continent.
+### Central Asians: Bridging Europe and Asia
+Stretching from the Caspian Sea to China, Central Asia's geographical position at the crossroads of Europe and Asia is reflected culturally. With former Soviet influence, many Central Asians identify more closely with European or Western society in some ways. However, longtime Central Asian ethnic groups like Uzbeks, Kazakhs and Kyrgyz also maintain traditions deeply rooted in their Asian heritage. 
+This dual identity is seen in the **fusion of Islamic and European architectural styles** evident in historic cities like Bukhara and Samarkand. Central Asians also straddle relations with powerful neighbors China, Russia and the Middle East. As the region develops its own voice on the global stage post-Soviet era, a balance will be sought between Eastern and Western partnerships. Central Asia exemplifies how identity is fluid, often blending influences from seeming "opposites" at the cultural crossroads.
+### The Middle East: A Distinct Geo-Cultural Region
+Spanning Northern Africa, Western Asia, and the Caucasus region, the vast territory encompassing the Middle East could understandably be categorized as part of either the Asian or African continents based on geography alone. However, for its inhabitants, the Middle East represents a distinct geo-cultural region with characteristics forming identities unlike any single continent.  
+Across the Fertile Crescent where civilization first emerged, the Middle East nurtured world religions like Islam, Christianity and Judaism over millennia. Today, these Abrahamic faiths remain central to Middle Easterners' sense of self and culture alongside Arabic as a shared language. 
+Distinctive architecture, cuisines incorporating foods like hummus, baba ghanoush and shawarma, and artistic traditions like ornate carpentry and calligraphy all point to a unified Middle Eastern identity that transcends continental boundaries. For its people, "Middle Eastern" best encapsulates this unique regional identity, unlike terms like Asian or African.
+# Defining 
+![Defining Asian Identities](https://www.sup.org/img/covers/large/pid_22029.jpg)
