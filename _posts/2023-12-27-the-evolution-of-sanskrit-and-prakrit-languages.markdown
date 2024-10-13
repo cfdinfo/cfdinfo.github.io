@@ -23,7 +23,8 @@ Though separate languages, **Pali retained aspects of Sanskrit and local Prakrit
 ## Relationships Between the Languages
 Debates surrounding the origins of Sanskrit and Prakrit languages reflect cultural as well as academic perspectives. Linguistic theories on their development consider multiple possibilities.
 ### Sanskrit as the Parent Tongue
-One theory positions **Sanskrit as the original language of Indo-Aryan migrants,** which common speakers gradually corrupted into Prakrit dialects by abandoning rules. However, this implies Sanskrit was once a **fully vernacular language** instead of a scholarly medium. 
+One theory positions **Sanskrit as the original language of Indo-Aryan migrants,** which common speakers gradually corrupted into Prakrit dialects by [abandoning](https://senprints.com/search?s=Matching+Family+I'm+The+Canadian+Leprechaun+St+Patrick's+Day+T-Shirt|+Deals&spsid=122536
+) rules. However, this implies Sanskrit was once a **fully vernacular language** instead of a scholarly medium. 
 ### Prakrit the Original, Sanskrit Reformation
 Alternatively, early Prakrit may have constituted the basic speech of indigenous populations. **Brahmin academics could have refined this into the highly structured Sanskrit** exclusively used in their social circles.
 ### A Common Ancestral Language
