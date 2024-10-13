@@ -17,7 +17,8 @@ On the first day, arrive early in Lisbon to get settled into your accommodation.
 In the evenings, the lively area of Cais do Sodré comes alive. On Thursday through Saturday nights, stroll along **Rua Cor de Rosa** to experience the unique atmosphere and interact with locals and travelers from around the world. You can also wander up the street to the Bairro Alto neighborhood for more lively bars and clubs. Be sure to sample some of Portugal's famous wines during your night out.
 ## Exploring the Outskirts of Lisbon 
 ### A Day in Cascais and Estoril 
-Spend your second day exploring the charming coastal towns west of Lisbon. Take the quick train ride to the seaside village of **Cascais**, with its marina, beaches, and historic center. Then continue a short distance to elegant **Estoril**, famous for its luxury hotels, casino, and beautiful coastal scenery. Be sure to allow plenty of time to relax and take in the views.
+Spend your second day exploring the charming coastal towns west of [Lisbon](https://senprints.com/search?s=Australian+Cattle+Heeler+Dog+In+Aviator+T+Shirt+Dog+Lover+T-Shirt|+Deals&spsid=122536
+). Take the quick train ride to the seaside village of **Cascais**, with its marina, beaches, and historic center. Then continue a short distance to elegant **Estoril**, famous for its luxury hotels, casino, and beautiful coastal scenery. Be sure to allow plenty of time to relax and take in the views.
 ### Magical Belém
 On your way back to Lisbon, stop in Belém to visit some of Portugal's most iconic landmarks. Wander the beautiful gardens surrounding the UNESCO World Heritage sites of the **Mosteiro dos Jerónimos** monastery and the **Torre de Belém** tower. Don't forget to try the delicious **pastéis de Belém** straight from the source at the renowned Antiga Confeitaria de Belém bakery. 
 ## Exploring Enchanting Sintra
